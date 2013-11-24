@@ -8,4 +8,19 @@ The young woman hung in the air, a little too close to the ground for comfort â€
 
 "Only sometimes? I'm surprised" said a voice around the level of her feet. A young man stood there. He wore a fancy suit, to match the automatons of the fake gentry which were slowly going back to their starting positions, ready for the exercise to be started once more. It didn't match his unkempt beard and hirsute hair. Maria never managed to know if it was just an illusion or if he really was this way all the time. He would have looked out of place just about anywhere, even with the lunatics, which matched exactly what he said he his intent was: "You learn about invisibility by not standing out," he would often declare, "while I have perfected the strange and difficult art of being invisible by being so strange even the universe would be surprised to see me at its dinner party." Maria had asked around, but nobody knew if he was really serious, which she decided was either evidence of insanity or great success.
 
-He reached out and tapped one of Maria's toes, giving her just enough time to react
+He reached out and tapped one of Maria's toes, giving her just enough time to react and cast her arms downwards before she fell as the anti-gravity spell let her go, sending her sprawling to the ground. As she righted herself, the man signaled and a servant started making her way towards them. Maria glanced briefly in her direction, vaguely recognising the figure in a plain white dress before dismissing her from her mind. She looked at her tutor, who was asking a bit mockingly perhaps:
+
+"What was it this time? Missed a rung climbing down? Tripped on the carpet? Got caught in drapes? Walked into a wall?" He was looking amused enough that she exclaimed: "I didn't ever do that last one!" in a dismayed voice before clapping her mouth shut. He raised an eyebrow while she bit her lip and added darkly: "There was a cat. I hate those things."
+
+The words had barely escaped her mouth when she realised. *I told you you'd missed something*, Unhelpful Intuition unhelpfully told her. Per regulation and spellwork, no animals save small insects were allowed within training rooms. The cat couldn't have been there, unless... she glared accusingly at the man, who looked disapproving. *You're still missing something*, Unhelpful Intuition pipped up. Maria snapped at it but was cut short: "Are you perhaps thinking I would defy regulations and enchantments to bring in a feline in the sole purpose of making you fail?" he tutted. "You aren't seeing the meta-game, and you're still too hilariously clumsy to pass the game itself." *There's a meta-game?*, she thought, making an infuriating number of her personalities facepalm.
+
+The tutor looked at the servant, giving a few short orders in French. The pitied look the girl gave Maria pushed her to add a few points to her goal of learning the local language, but even with that boost it wouldn't make the shortlist of things-to-do-this-year. She'd get to it eventually. *Yeah, probably just when it will be too late.* She did her best to ignore the thought, and looked up.
+
+"That will be enough for tonight. Rest well, and disregard any homework; you won't attend classes until you've passed this exercise, one way or another. You'll just have to catch back during break." There went her holiday plans. "Yes, sir."
+
+He walked past her, and has disappeared by the time she turned around. She almost missed the waviness introduced by the transplaced air mixing in. "Show-off," she muttered. Smooth transplacing like that required a tight grasp of magic and plentiful reserves. She'd have killed to have either, well, to even have magic, really. It would make everything so much easier.
+
+She sighed as she began the walk back to her dorm. It was a long while before she arrived, and the door guard almost missed her in the dark. "You missed curfew." Maria dug in her pockets for the pass, but the guard shooed her inside: "Go warm yourself, and do yourself a favour, wake up late tomorrow. It's not like you'll be late for class." Oh. It was Friday. She sighed. Tomorrow was going to suck.
+
+***
+
