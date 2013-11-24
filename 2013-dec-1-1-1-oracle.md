@@ -1,0 +1,11 @@
+---
+title: 1-1 Oracle
+---
+
+*There are never enough ways for things to go wrong*, thought Maria. Not only was she not anywhere near safe territory, she was also upside down and in plain sight of the gentry she'd been attempting to rob. All because of a stupid cat. *I hate those things*, she seethed. *You're missing something*, Unhelpful Intuition let her know. She ignored the thought; there wouldn't be time to think about it.
+
+The young woman hung in the air, a little too close to the ground for comfort — indeed her hair nearly touched the gravel — and the extra blood surging through her brain didn't help to make the situation better. Her feet were bare, revealing just a bit of her ocre skin before it was covered by tight leggings. Her entire outfit was matte black, the fabric so furtive she always thought it absorbed all light instead of reflecting it. She liked that it did a good job at hiding her chest, or lack thereof; she appreciated neither the stares nor for her age to be underestimated. *They're going to stare nonetheless, you know*, said Cynic (or was it Realist ? She didn't have a good handle on her personalities yet.) *Oh, quiet, you.* She glared internally. *Don't tell me you've got a split personality?* one asked, promptly followed by a chorus of giggling. "Sometimes I just want to kill you all," Maria murmured.
+
+"Only sometimes? I'm surprised" said a voice around the level of her feet. A young man stood there. He wore a fancy suit, to match the automatons of the fake gentry which were slowly going back to their starting positions, ready for the exercise to be started once more. It didn't match his unkempt beard and hirsute hair. Maria never managed to know if it was just an illusion or if he really was this way all the time. He would have looked out of place just about anywhere, even with the lunatics, which matched exactly what he said he his intent was: "You learn about invisibility by not standing out," he would often declare, "while I have perfected the strange and difficult art of being invisible by being so strange even the universe would be surprised to see me at its dinner party." Maria had asked around, but nobody knew if he was really serious, which she decided was either evidence of insanity or great success.
+
+He reached out and tapped one of Maria's toes, giving her just enough time to react
