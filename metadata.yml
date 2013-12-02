@@ -1,19 +1,14 @@
 ---
-title: 'Blograph'
+title: 'Darkwhite ❧ A science-fantasy serial novel ❧ Updates every second Sunday'
 author: 'passcod' # Default author
 header:
-  title: 'Félix Saparelli'
-  subtitle: 'a.k.a. passcod'
-footer: 'Dedicated to the <a rel="license" href="https://creativecommons.org/publicdomain/zero/1.0/">Public Domain</a>'
+  title: 'Darkwhite'
+  subtitle: 'A science-fantasy serial novel'
+footer: 'Licensed under <a rel="license" href="https://creativecommons.org/licenses/by/3.0/">CC-BY 3.0</a>.'
 locale:
-  date: '%b %-d'
-  parents: 'Parent posts are posts that inspired, led to, or are obsoleted by this one.'
-  children: 'Child posts are posts that were inspired by, are updates on, obsolete, or follow this one.'
-  feedback: 'Praise, thoughts, criticism? <a href="https://twitter.com/passcod">@passcod</a> or <a href="mailto:ask@passcod.name">ask@passcod.name</a>'
+  date: '%b %-d ‘%y'
+  feedback: 'Comment or contact me at: <a href="https://twitter.com/passcod">@passcod</a> or <a href="mailto:darkwhite@passcod.name">darkwhite@passcod.name</a>.'
   flip: 'Click to turn lights on xor off.'
 tags:
-  auto-thief: I think this was inspired by HPMoR.
-  foobar: Foo! Bar! Baz! Unicorns!
-  document: Generic but not so generic. Generally written in the 3rd person.
-  nano: I write my NaNoWriMo on here.
-  chapter: Some kind of story might be writing itself here…
+  issue: Published on the first UTC second of every second Sunday.
+  note: Irregular updates on the writing process and various news.
