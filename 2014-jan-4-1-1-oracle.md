@@ -29,3 +29,5 @@ Maria collapsed on her bed, not even taking care of undressing nor even tucking 
 Maria's dark, clothed, immobile form stayed silent for just a moment more before getting up with a heavy sigh. "I can't go," she explained, "Pidof is making me repeat until I pass." She hesitated. "Said something about the meta-game."
 
 The room's main light switched on and Maria winced, blinded, then cried out in protest. An arm grabbed her, turned her around, and pushed her into the ensuite. "Wash yourself, change, and get that frown off your face. Now!" Maria shuffled along the tiled floor and found the manual light knob, then turned it to its minimum setting. The bathroom was illuminated just enough that there was no risk of stubbing a toe, while still being comfortable to Maria's tired eyes. She sighed. Nevermind tomorrow, *tonight* was going to suck.
+
+*I have to admit, though, this shower feels nice.* she thought. 
