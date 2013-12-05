@@ -24,7 +24,7 @@ She sighed as she began the walk back to her dorm. It was a long while before sh
 
 ***
 
-Maria collapsed on her bed, not even taking care of undressing nor even tucking herself in. Her roommate's soft voice called out: "Professor Pidof keep you late again?" Maria answered only with a muffled grunt. "You remember we're going out tomorrow, right?" *Sucky sucky sucky suuuuuck*, chanted Five-Year-Old Voice. "O-te-go-een" voiced Maria. "Pardon?"
+Maria collapsed on her bed, not taking care of undressing nor even tucking herself in. Her roommate's soft voice called out: "Professor Pidof keep you late again?" Maria answered only with a muffled grunt. "You remember we're going out tomorrow, right?" *Sucky sucky sucky suuuuuck*, chanted Five-Year-Old Voice. "O-te-go-een" voiced Maria. "Pardon?"
 
 Maria's dark, clothed, immobile form stayed silent for just a moment more before getting up with a heavy sigh. "I can't go," she explained, "Pidof is making me repeat until I pass." She hesitated. "Said something about the meta-game."
 
