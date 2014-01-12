@@ -8,6 +8,12 @@ Maria reached down and flicked her finger, hitting the hilt of her obsidian knif
 
 Outside, two young women sat in opposite chairs.
 
-One was pale, bunched up in her seat, softly trembling, her eyes empty. She had straight blonde hair, enough to reach the middle of her back. It waved and shifted in step with her shivers. Her face was streaked by tears, her eyes were red, but she was otherwise unharmed, physically at least. She was wearing an elegant dark grey shirt, with rich silver-thread embroidery, and a simple shirt that was wet where tears had stricken it. Maria looked at her for a moment, then turned her attention to the other woman.
+One was pale, bunched up in her seat, softly trembling, her eyes empty. She had straight blonde hair, enough to reach the middle of her back. It waved and shifted in step with her shivers. Her face was streaked by tears, her eyes were red, but she was otherwise unharmed, physically at least. She was wearing an elegant dark grey shirt, with rich silver-thread embroidery, and a simple skirt that was wet where tears had stricken it. Maria looked at her for a moment, then turned her attention to the other woman.
 
-This one was sitting calmly, reading a looparchment of trash fiction one would typically find in transport stations' boutiques.
+This one was sitting calmly, reading a looparchment of trash fiction one would typically find in transport stations' boutiques. Her hair was bright red, although if one was to watch carefully, one would be able to observe the colour changing ever so slowly. In an hour, it would be crimson; in five, it would be a shade of jade. Very few people knew what her original hair looked like, below the enchantment. Its length and shape also varied widely, making Eloïse Na'k hard to identify from a distance — although the wide berth most gave her was hard to miss in a crowd, or anywhere there was people, really. She was staring envenly at the young woman in front of her, smiling softly. Her face was perfectly symmetrical, not a blemish nor a fold anywhere. She wore the solid white tunic charasteristic of the House of Na'k, but that was a special occasion (she hated the thing), and she would soon clad her usual clothing.
+
+Smoothly, she stood.
+
+"Let's go."
+
+
