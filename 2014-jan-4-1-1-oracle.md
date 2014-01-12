@@ -10,4 +10,4 @@ Outside, two young women sat in opposite chairs.
 
 One was pale, bunched up in her seat, softly trembling, her eyes empty. She had straight blonde hair, enough to reach the middle of her back. It waved and shifted in step with her shivers. Her face was streaked by tears, her eyes were red, but she was otherwise unharmed, physically at least. She was wearing an elegant dark grey shirt, with rich silver-thread embroidery, and a simple shirt that was wet where tears had stricken it. Maria looked at her for a moment, then turned her attention to the other woman.
 
-
+This one was sitting calmly, reading a looparchment of trash fiction one would typically find in transport stations' boutiques.
