@@ -49,4 +49,4 @@ The bathroom's door depolished window cracked. A flick of a finger repaired it. 
 
 The question went unasnwered. It never was. Maria had always taken care of Eloïse. She suspected that was on her family's orders. No one else, not even her siblings, nor the various suitors who had dared approach over the years, no one had ever demonstrated such inflinching loyalty. However, when she'd finally (it took a certain while, of internal deliberation and of getting an audience) voiced her suspicion to her father, he had laughed but offered no answered. When she'd done (after an even longer time) the same to Maria, *she* had laughed *harder*, and still no explanation was given. Eloïse was fairly frustrated about that.
 
-
+She put her shoes on, slid her hands in her pockets (the threat still hung in the air like a deadly butterfly, and it made her fingers tingle), and walked out the door. A couple making out at the end of the corridor jumped, turned, and scrambled away in flight. A half sigh and a transplacing spell later, she had departed.
