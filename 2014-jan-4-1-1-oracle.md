@@ -16,4 +16,37 @@ Smoothly, she stood.
 
 "Let's go."
 
+Maria held out her hand, and the screaming stopped as her two knives floated back to her grasp. A flick of the wrist sent blood splatting on the tiled floor. With one last glance to the prostrated woman still in her chair, she ordered:
+
+"Go pick up your boyfriend. I don't wan't him dying in there and stinking up the place."
+
+***
+
+> Two women walking the street.  
+> Two shadows following them.  
+> Light above and light below  
+> void all around.  
+> Two shadows walking the street.  
+> Two women preceding them.  
+> The devil and her right hand  
+> have entered the city.  
+> Flee! lest it be too late.  
+> — Oracle 11:3
+
+They were late. Or rather, *she* was late. Maria fretted around the room, her version of pacing back and forth a flurry of small adjustments to everything everywhere she could reach. She'd moved the shoe rack a few millimetres one way; evenly placed every shoe, boot, ballerina and slipper on its shelves, sorted them by category, frequency of use, and date of acquisition; alphabetised the entire bookwall, all five sides of it, first by author, then by title, then by date of publication, finally settling on one of the three intercounty standard, don't ask me which; verified the enchantment on every pen they owned (or had borrowed, stolen, made) and arranged them by various criteria I'm not going to mention; retouched a counterfeit of the famous 'Blue Wizzen' because "the counterfeiter didn't consider the original colour of the mid-seventh-century violet pigment".
+
+But even the amateur desecration of a million-sol piece of falsified art didn't hurry Eloïse, who was still powdering her nose. It had been three minutes! At this rate, she would be an entire fifteen seconds late. That was unacceptable.
+
+"Elo! Get the fuck out!" Maria bellowed.
+
+The bathroom's door depolished window cracked. A flick of a finger repaired it. Eloïse threw it open, stepped out, and slammed it close. All the glass shattered and flew inwards. A flick of a finger repaired it. The Heir of the House of Na'k glanced darkly at Maria, smirked, threw her fist into the pane— and bruised her knuckles. A flick of a finger repaired them.
+
+"Aïeee… Maria, what the fuck?!"  
+"I hardened it. Put your shoes on, we're on a schedule."  
+"*I*'m on a schedule. You're not invited to that stupid party !"  
+"Nor am I invited to break your fingers repeatedly. But I *will* do so if you do not go. *Now*."  
+"Why do you *care*?"
+
+The question went unasnwered. It never was. Maria had always taken care of Eloïse. She suspected that was on her family's orders. No one else, not even her siblings, nor the various suitors who had dared approach over the years, no one had ever demonstrated such inflinching loyalty. However, when she'd finally (it took a certain while, of internal deliberation and of getting an audience) voiced her suspicion to her father, he had laughed but offered no answered. When she'd done (after an even longer time) the same to Maria, *she* had laughed *harder*, and still no explanation was given. Eloïse was fairly frustrated about that.
+
 
