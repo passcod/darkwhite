@@ -36,4 +36,4 @@ And still no man
 for this coloured lady.  
 — Oracle 6:17
 
-The
+The 
