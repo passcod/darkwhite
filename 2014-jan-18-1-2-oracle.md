@@ -16,4 +16,6 @@ A few students giggled. Maria ignored them, pulled her tally of how many times s
 
 "In the first century, elven researchers uncovered an ancient message hidden in the protection runes of an abandoned city's ruins. Written in verse, totalling a hundred and seventeen stanzas, in the ancient language Shȧ, it has defied consensus from thousands upon thousands of researchers and historians, who each have a different opinion and interpretation. Today we will be studying a translation of stanzas twenty-nine and ninety-five, and you will give me five pagea on your own interpretation. During the coming weeks, we will explore the different schools of thought that have divided scholars of the Shȧ stanzas, briefly cover the history of the translation we will be using, and finish by a cursory look at facts and conjectures about the people who most probably authored the text. If you wish to continue with this text, one of my third year classes studies it in its original version; I ask however that you refrain from using that or other translations for this year's course. If you already have knowledge of the text or the language, please do unlearn it in the next half minute. While I wait, here is the title of the work in Shȧ script:"
 
+![seven characters in shȧ script representing the title of the work in question](/sha/oracle-1-2-a.png)
+
 
