@@ -4,7 +4,7 @@ title: 1-1 Oracle
 
 The boy was screaming. Earlier, there had been cries, sobs and tears, but she had found it annoying and repetitive. The amount of pain necessary for one to stop wailing and simply scream instead was a very thin threshold, hard to pin down once it was reached, as going back below wouldn't revert the behaviour quite immediately.
 
-Maria reached down and flicked her finger, hitting the hilt of her obsidian knife. The boy's arms jerked in their restraints, his shriek pitching up in intensity for a brief moment before settling back to its regular level. He gasped and gagged, drawing in air raggedly and exhaling loudly, in and out, in and out, in an attempt to stop crying out. Maria looked at her watch. The heavy breathing continued. An eternity, in the form of barely two minutes, passed slowly by, while the rhythm of whistling, sucking and blowing accelerated. Finally, just before the two minute mark, the screaming started again. She smiled and left the room.
+Maria reached down and flicked her finger, hitting the hilt of her obsidian knife. The boy's arms jerked in their restraints, his shriek pitching up in intensity for a brief moment before settling back to its regular level. He gasped and gagged, drawing in air raggedly and exhaling loudly, in and out, in and out, in an attempt to stop crying out. Maria looked at her watch. The heavy breathing continued. An eternity, in the form of barely two minutes, passed slowly by, while the rhythm of whistling, sucking and blowing accelerated. Finally, just before the two-minute mark, the screaming started again. She smiled and left the room.
 
 Outside, two young women sat in opposite chairs.
 
@@ -39,7 +39,7 @@ But even the amateur desecration of a million-sol piece of falsified art didn't 
 
 "Elo! Get the fuck out!" Maria bellowed.
 
-The bathroom's door depolished window cracked. A flick of a finger repaired it. Eloïse threw it open, stepped out, and slammed it close. All the glass shattered and flew inwards. A flick of a finger repaired it. The Heir of the House of Na'k glanced darkly at Maria, smirked, threw her fist into the pane— and bruised her knuckles. A flick of a finger repaired them.
+The bathroom's door unpolished window cracked. A flick of a finger repaired it. Eloïse threw it open, stepped out, and slammed it close. All the glass shattered and flew inwards. A flick of a finger repaired it. The Heir of the House of Na'k glanced darkly at Maria, smirked, threw her fist into the pane— and bruised her knuckles. A flick of a finger repaired them.
 
 "Aïeee… Maria, what the fuck?!"  
 "I hardened it. Put your shoes on, we're on a schedule."  
