@@ -18,4 +18,22 @@ A few students giggled. Maria ignored them, pulled her tally of how many times s
 
 ![seven characters in shȧ script representing the title of the work in question](/sha/oracle-1-2-b.png)
 
+A student in the lower rows raised a hand. Karl, Maria recalled. Average, but always thirsty for knowledge.
 
+"Can you pronounce it?"
+
+The professor paused an instant, considering the question, then answered:
+
+"Yes."  
+"Now please open your textbook page five hundred and six, and read the stanzas." she continued, adressing the class.
+
+***
+
+A man in black.  
+A man in white.  
+A man in every shade between.  
+And still no man  
+for this coloured lady.  
+— Oracle 6:17
+
+The
