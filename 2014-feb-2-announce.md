@@ -7,11 +7,11 @@ and rampant (ongoing) platform improvements, this serial
 will (really, this time) be published on the __third Sunday
 of March__ and __every second Sunday__ after that.
 
-While the contents and website will remain more or less the
+~~While the contents and website will remain more or less the
 same, the title and URL will be changed sometime soon to
 something that reflects the novel a bit better. This domain
 will then redirect to the new one until __May 4__ where it
-will be reclaimed for other purposes.
+will be reclaimed for other purposes.~~ __Update 6 Feb__: The old name (still used as working/code name) was *Darkwhite*, the new name is *White Aldus*, redirection is in place.
 
 Issues are currently looking to be about 1-3k words long,
 which, if you're not familiar with the medium, is *short*

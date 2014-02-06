@@ -1,13 +1,13 @@
 ---
-title: 'Darkwhite ❧ A science-fantasy serial novel ❧ Updates every second Sunday'
+title: 'White Aldus ❧ A serial novel ❧ Updates every second Sunday'
 author: 'passcod' # Default author
 header:
-  title: 'Darkwhite'
-  subtitle: 'A science-fantasy serial novel'
+  title: 'White Aldus'
+  subtitle: 'A serial novel'
 footer: 'Licensed under <a rel="license" href="https://creativecommons.org/licenses/by/4.0/">CC-BY 4.0</a>.'
 locale:
   date: '%b %-d ‘%y'
-  feedback: 'Comment or contact me at: <a href="https://twitter.com/passcod">@passcod</a> or <a href="mailto:darkwhite@passcod.name">darkwhite@passcod.name</a>.'
+  feedback: 'Comment or contact me at: <a href="https://twitter.com/passcod">@passcod</a> or <a href="mailto:whitealdus@passcod.name">whitealdus@passcod.name</a>.'
   flip: 'Click to turn lights on xor off.'
 tags:
   issue: Published on the first UTC second of every second Sunday.
