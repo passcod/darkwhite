@@ -1,6 +1,6 @@
-The boy was screaming. Earlier, there had been cries, sobs and tears, but she had found it annoying and repetitive. The amount of pain necessary for one to stop sobbing and simply scream instead was a very thin threshold, hard to pin down once it was reached, as going back below wouldn't revert the behaviour quite immediately.
+The boy was screaming. Earlier, there had been cries, sobs and tears, but she had found it annoying and repetitive. The amount of pain necessary for one to stop sobbing and simply scream instead was a very thin threshold, hard to pin down as once it was reached, going back below wouldn't revert the behaviour quite immediately.
 
-Maria reached down and flicked her finger, hitting the hilt of her obsidian knife. The boy's arms jerked in theire restraints, his scream pitching up in intensity for a brief moment before settling back to its regular level. He gasped and gagged, drawing in air raggedly and exhaling loudly, in and out, in and out, in an attempt to stop screaming. Maria looked at her watch. The heavy breathing continued. An eternity, in the form of barely two minutes, passed slowly by, while the rhythm of whistling sucking and blowing accelerated. Finally, just before the two minute mark, the screaming started again. She smiled and left the room.
+Maria reached down and flicked her finger, hitting the hilt of her obsidian knife. The boy's arms jerked in their restraints, his scream pitching up in intensity for a brief moment before settling back to its regular level. He gasped and gagged, drawing in air raggedly and exhaling loudly, in and out, in and out, in an attempt to stop screaming. Maria looked at her watch. The heavy breathing continued. An eternity, in the form of barely two minutes, passed slowly by, while the rhythm of whistling sucking and blowing accelerated. Finally, just before the two minute mark, the screaming started again. She smiled and left the room.
 
 Outside, two young women sat in opposite chairs.
 
@@ -12,7 +12,7 @@ Smoothly, she stood.
 
 "Let's go."
 
-Maria held out her hand, and the screaming stopped as her two knives floated back to her grasp. A flick of the wrist sent blood splatting on the tiled floor. With one last glance to the prostrated woman still in her chair, she ordered:
+Maria held out her hand, and the boy shrieked — and then stopped abrubtly. Two knives floated slowly to her grasp; a flick of the wrist sent blood splatting on the tiled floor. With one last glance to the prostrated woman still in her chair, she ordered:
 
 "Go pick up your boyfriend. I don't wan't him dying in there and stinking up the place."
 
@@ -43,6 +43,6 @@ The bathroom's door depolished window cracked. A flick of a finger repaired it. 
 "Nor am I invited to break your fingers repeatedly. But I *will* do so if you do not go. *Now*."  
 "Why do you *care*?"
 
-The question went unasnwered. It never was. Maria had always taken care of Eloïse. She suspected that was on her family's orders. No one else, not even her siblings, nor the various suitors who had dared approach over the years, no one had ever demonstrated such inflinching loyalty. However, when she'd finally (it took a certain while, of internal deliberation and of getting an audience) voiced her suspicion to her father, he had laughed but offered no answered. When she'd done (after an even longer time) the same to Maria, *she* had laughed *harder*, and still no explanation was given. Eloïse was fairly frustrated about that.
+The question went unasnwered. It never was. Maria had always taken care of Eloïse. She suspected that was on her family's orders. No one else, not even her siblings, nor the various suitors who had dared approach over the years, no one had ever demonstrated such inflinching loyalty. However, when she'd finally (it took a certain while, of internal deliberation and of getting an audience) voiced her suspicion to her father, he had laughed but offered no answer. Eloïse had chalked it up to adults not taking six-year-olds seriously, and she'd endeavoured to repeat her efforts at each opportunity, during several years. When she was eleven (after an even longer time of internal deliberation), she'd asked the subject of her inquiries herself. Maria had proceeded to laugh *harder*, and still no explanation was given. Eloïse was fairly frustrated about that.
 
 She put her shoes on, slid her hands in her pockets (the threat still hung in the air like a deadly butterfly, and it made her fingers tingle), and walked out the door. A couple making out at the end of the corridor jumped, turned, and scrambled away in flight. A half sigh and a transplacing spell later, she had departed.
