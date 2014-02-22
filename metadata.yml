@@ -4,7 +4,7 @@ author: 'passcod' # Default author
 header:
   title: 'White Aldus'
   subtitle: 'A serial novel'
-footer: 'Licensed under <a rel="license" href="https://creativecommons.org/licenses/by/4.0/">CC-BY 4.0</a>.'
+footer: 'Licensed under <a rel="license" href="https://creativecommons.org/licenses/by/4.0/">CC-BY 4.0</a>. <a rel="alternate" href="/feed">Feed</a>.'
 locale:
   date: '%b %-d ‘%y'
   feedback: 'Comment or contact me at: <a href="https://twitter.com/passcod">@passcod</a> or <a href="mailto:whitealdus@passcod.name">whitealdus@passcod.name</a>.'
