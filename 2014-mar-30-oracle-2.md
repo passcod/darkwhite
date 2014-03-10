@@ -36,4 +36,8 @@ And still no man
 for this coloured lady.  
 — Oracle 6:17
 
-The 
+Rain never bothered Maria. The family story went that she was born under the rain, but everyone had family stories, and few were actually real. Nevertheless, rain had never bothered Maria.
+
+It would have been nearly effortless to shield oneself from the rain, and the rest of the world did so. In fact, the task was so common that cities had instaured automatic individual protection systems for everyday annoyances like this. Rain, hail, any other kind of weatherly precipitation, sun burn and strike, various common diseases and air- and water-borne microbes. Cities were cleaner, the individual model was more efficient than city-wide measures, and the privilege could be taken away. Not all cities were like that, but more and more these days. It was a bit worrisome to a lot of insignificant spellmakers who thrived on fixing the small stuff. Well, they still had paper cuts and bruised fingers to occupy themselves.
+
+
