@@ -40,4 +40,51 @@ Rain never bothered Maria. The family story went that she was born under the rai
 
 It would have been nearly effortless to shield oneself from the rain, and the rest of the world did so. In fact, the task was so common that cities had instaured automatic individual protection systems for everyday annoyances like this. Rain, hail, any other kind of weatherly precipitation, sun burn and strike, various common diseases and air- and water-borne microbes. Cities were cleaner, the individual model was more efficient than city-wide measures, and the privilege could be taken away. Not all cities were like that, but more and more these days. It was a bit worrisome to a lot of insignificant spellmakers who thrived on fixing the small stuff. Well, they still had paper cuts and bruised fingers to occupy themselves.
 
+"You know roofing exists for a reason, right?"  
+"Rain doesn't bother me. How was class, Elo?"
 
+Eloïse, hair the colour of lapis, didn't even bother to answer. Class was average. Life was average. University was average. Being the heir of a prominent House was average *at best*. There's a difference between being good enough to coast through and being good enough to be able to not bother with class. Turned out she was of the former calibre, now that university had progressed beyond the "let's get everyone to the same level" attitude of first year classes and well into the actual learning of second year. She didn't show it, but she was actually starting to get worried about this: she really had to work now, instead of pretending for family's sake, and the strain wasn't one she was used to handle. She compensated by making her other activities a little more satisfying.
+
+The two women walked an arm-length away from each other, one getting wet, the other less so. Passer-bys went around them, creating a bubble of free space around them like a bubble of air rising against the flow. The movement became so natural that everybody conformed, even if they didn't have any idea of who they were. It was only a short moment in their lives, anyway, so why risk making it *something* by going against or away from the common flow?
+
+Study years were supposed to be years of experimentation, both with oneself, others, and more academic material, yet the community had its own society, and societies are built around averages. Most of the people walking around Eloïse and Maria were students, and most of them were average members of the community. They had dreams they would never achieve, they were looking for a job to feed themselves, they were tired of the hours, the weeks, the years. They would be grateful to graduate, yet say their study years had been the best of their lives. Their children would do the same. She found the cycle depressing. She despised expectations.
+
+But she knew in a corner of herself that if one of these supposedly average passer-bys ignored the flow and stepped into the bubble, he would, was he to live, regret it for a while later. Through that certainty came another: that that very behaviour was exactly what this society, this society who avoided her, expected *of* her. Similarly, the efforts she did to maintain good grades, to maintain the good graces of her family, to maintain her public reputation, all these fulfilled the expectations placed upon her, no matter how she tried to twist the manner of the fulfillment. And so she also despised herself.
+
+_What if I did something?_ she thought, _something unexpected. Something to break these expectations?_  
+_We have to be careful of consequences_ another part of her cautioned, _lest we are confined to these very expectations by force rather than choice._  
+_What assets do we have?_ she continued, falling into the pattern, _We have our reputation—_  
+_— which we're trying to break, so that's not an asset._  
+_We have Maria—_  
+_— whose allegiances and motivations are still unclear..._  
+_...but so far the evidence points to her going along with me rather than others._  
+_Shall we vote on it?_ Not completely serious, but... _I say Aye._  
+_Aye._  
+_Aye._ pipped up another voice. Introspection revealed it belonged to her mental model of Maria.  
+_What else?_  
+_Our skills in the art—_  
+_— really do not even begin to match those that would come after us._  
+_The element of surprise—_  
+_— is entirely dependent on what exactly we do._  
+_We don't have much._  
+_But we have the will._  
+_So what shall we do?_  
+_Being "nice" for a change won't work._  
+_Obviously. Neither will going full out._  
+_Fighting against family?_  
+_We'll just fail before even beginning._  
+_Slow change?_  
+_Expected._  
+_What if..._
+
+"Maria?"  
+"Yeah?"  
+"I want to disappear."
+
+A pause. Silence for an entire minute. Finally:
+
+"Okay."
+
+And nothing more. They continue walking. A few minutes pass before Eloïse steps away at right angles to her course, plunges in the crowd, which starts to scatter, and vanishes into a shop front. She goes out the back exit, whirls around, and looks at Maria, with a small smile on.
+
+"Let's go."
