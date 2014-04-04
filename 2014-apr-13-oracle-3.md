@@ -53,3 +53,45 @@ Burn herders with metal,
 And chant badly all the while.  
 — Oracle 20:14  
 
+"She wanted to disappear?"  
+"That's what she said."  
+"Like, literally? I mean, she wanted to run away?"  
+"I think so. She didn't say quite exactly what she meant, but that was the apparent intent, yes."  
+"So how did you convince her otherwise?"  
+"I didn't. I simply changed the meaning of 'disappear'."  
+
+There was a significant pause. As it dragged on, Maria sighed and asked:
+
+"Listen, why don't you just run along and pass me Aunt Sila? It'll be faster than just you repeating everything and I can hear you want to be somewhere else."  
+"Oh, um. I don't know. I could get in trouble."  
+"For saving time? Are you sure you work for the same people I do?"  
+"Hah, yeah. Okay, but don't tell anybody."  
+"Sure thing, lovebird."  
+"Sssh! Just— sssh!"
+
+She smirked and waited. The youth would certainly get in trouble, as even if they liked efficiency, they also liked protocol quite a bit. Still, getting in trouble was the lot of all employees there. It was a very troublesome entreprise.
+
+She heard Aunt Sila's voice and readied herself.
+
+"You know the protocol, Maria, why must you ignore it so often?"  
+"Oh please, you know Tom's hopeless when she wants to be with her paramour. It'll be faster that way."  
+"You'll say anything to justify yourself. Alright then, so I understand you changed the meaning of a word?"  
+"Well, I just proposed, or, uhm, interpreted her commands, differently from what she probably originally thought."  
+"Yeah yeah. So she's not gone 'poof' has she?"  
+"I got her a different identity, an on-demand transform—"  
+"Of our quality? This could be traceable."  
+"Well untrace it, then. I used one of us, so you should be able to do anything, right?"  
+"You know it's not that simple. Anyway," she motioned to continue.  
+"Well that's about it. Instead of actually dropping everything and going a-running, she's safely attending classes and experiencing the life of normal people."  
+"Is there a risk she'll like it too much and stop changing back?"  
+"Yes, but I can manage that."  
+"Anything immediate?"  
+"None that I haven't taken care of."  
+"Right then. Because you bothered to bother me, I'll have you write three different reports yourself instead of having staff do it."  
+"Oh come on—"  
+"Shut up. A partial this evening, a full in a week, and a follow-up in three. Triplicate and encrypt them yourself."  
+"But it's such a bother—"  
+"Don't be a child and get to work. I'll manage this new mess on this end."  
+"Mess? Oh, it's not as bad as last's month…"
+
+But she had already cut the link.
