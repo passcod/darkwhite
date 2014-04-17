@@ -29,7 +29,7 @@ A boy was standing, lightly pressed against the wall. He had auburn hair longer 
 
 "I wouldn't sit there if I were you. This might look like a smart building, but it really is a smart _university_, everything's on the one same system."  
 "So?"  
-"So when it gets overloaded, such as when classes end, it tends to sacrifice the little things in order to free resources for the big stuff. There's safeguards in place, so it won't crush everyone in a room by reverting it to its original size, but it has no qualms against dropping seats." He paused, and added with a somewhat bitter smile: "Unless of course there's somebody important on it."
+"So when it gets overloaded, such as when classes end, it tends to sacrifice the little things in order to free resources for the big stuff. There're safeguards in place, so it won't crush everyone in a room by reverting it to its original size, but it has no qualms against dropping seats." He paused, and added with a somewhat bitter smile: "Unless of course there's somebody important on it."
 
 Jerica frowned:
 
@@ -92,6 +92,6 @@ She heard Aunt Sila's voice and readied herself.
 "Shut up. A partial this evening, a full in a week, and a follow-up in three. Triplicate and encrypt them yourself."  
 "But it's such a bother—"  
 "Don't be a child and get to work. I'll manage this new mess on this end."  
-"Mess? Oh, it's not as bad as last's month…"
+"Mess? Oh, it's not as bad as last month's…"
 
 But she had already cut the link.
