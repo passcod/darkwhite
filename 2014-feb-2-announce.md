@@ -26,12 +26,20 @@ with graduates) so if something seems *wrong* to you, do not
 just chalk it up to fantasy-ness and tell me about it.
 I'd love to learn more.
 
-While it is not implemented yet, it is probable that an
-__inline edit suggestion system__ will be available when
-issues are published. With it, readers (that's you!) will
-be able to suggest fixes to typos and other mistakes, which
-should avoid embarassingly long "Typo threads" in comments,
-leaving the floor open for more meaningful discussion.
+An __inline edit suggestion system__ ~~will be~~ is available.
+With it, readers (that's you!) are able to suggest fixes to typos and
+other mistakes, which should avoid embarassingly long "Typo threads"
+in comments, leaving the floor open for more meaningful discussion.
+
+To activate it, select the portion of text which contains the typo you
+wish to fix, and tap *Shift* twice. That snippet will now be editable.
+Make the fix as you want it, as well as any other fixes (just select
+another portion of text and hit *Shift* twice again), then hit
+*Ctrl*+*Enter*: the editable fields will disappear, and your suggestions
+will be sent to the author (me!) for consideration.
+
+The software used to do this [is called Kifkif, and is available for
+anyone to use](https://github.com/passcod/kifkif).
 
 The adventurous and curious may find the drafts for upcoming
 issues in a public place; I will not go to much effort to hide
