@@ -53,11 +53,18 @@ _Let's think about this logically_, she thought. Actually, thinking felt less ta
 - "There's no expectations. Or very little anyway."
 - "People don't look so frightened around me."
 - "And that's disturbing? That people look frightened around us?"
-- "Yeah. Yeah, it is. I want power. I don't want to be feared. Maybe being feared will come *with* the being powerful thing, but right now it's just that I'm feared. There's no power behind it."
+- "Yeah. Yeah, it is. I want power. I don't want solely to be feared. Maybe being feared will come *with* the being powerful thing, but right now it's just that I'm feared. There's no power behind it."
 - "Being Jerica means it's a blank slate."
 - "Jerica *is* a blank slate, as far as everyone is concerned."
 - "Even *we* don't know how she'll turn out."
-- "And that's kinda exciting!"
 
 ***
+
+- Floating mid-water mid-air
+- No drink no substance no keep
+- The end in sight the means at hand
+- When noise is heard front and below
+- Wrecked there trees ahead stream aside
+- Life again alone and far
+- — Oracle 22:00
 
