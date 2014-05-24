@@ -10,13 +10,13 @@ The sound of a laughing lawyer is not usually something anyone would appreciate.
 "One to nine would be enough."  
 "Thank you."  she said curtly, dismissing him.
 
-She watched the lawyer walk away. There was something satisfying to order people around, something she relished in her daily interactions. It wasn't all that common, which was a bit surprising considering her position. Her father would certainly do so several times an hour, and so would her mother, as well as many other members of her entourage, even including most of her siblings. 
+She watched the lawyer walk away. There was something satisfying to ordering people around, something she relished in her daily interactions. It wasn't all that common, which was a bit surprising considering her position. Her father would certainly do so several times an hour, and so would her mother, as well as many other members of her entourage, even including most of her siblings. 
 
 _Why don't I feel this more often?_ she wondered. _Is it because I don't order people around as much, or is it because I don't do it consciously, or because of something else…?_
 
 She thought back to this past week. When playing around with that boy on Monday, Maria had done most of the hurting and ordering around. When she walked to and from class, home, shops, and various other places, whether Maria accompanied her or not, people moved out of her way and were generally reverential all the time. She had no opportunity at any of these times to order people around; in fact, people ordered *themselves* around before she had even the time to open her mouth.
 
-On the other hand, when she became Jerica, she had no or little control over anything. Sure, she could push people around, and for some reason they didn't complain — _I'll have to investigate this sometime_ — but *telling* anyone to do anything would simply result in blank or confused stares, or in her words being ignored completely. At least that was her experience so far, and she didn't want to try again: it really didn't feel nice.
+On the other hand, when she became Jerica, she had little or no control over anything. Sure, she could push people around, and for some reason they didn't complain — _I'll have to investigate this sometime_ — but *telling* anyone to do anything would simply result in blank or confused stares, or in her words being ignored completely. At least that was her experience so far, and she didn't want to try again: it really didn't feel nice.
 
 There was something missing. Somehow she had lost the ability, or maybe she didn't ever have it in the first place, to successfully order people around. Why? 
 
